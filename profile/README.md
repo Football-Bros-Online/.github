@@ -6,7 +6,7 @@ Are you ready for **crazy football action** with your best bro? **Football Bros 
 
 Whether you’re at school, home, or on the go, this **unblocked football game** brings you instant fun without any downloads.
 
-## <a href="https://izigames.net/">👉 Play Football Bros Unblocked 👈</a>
+## <a href="https://izigames.net/football-bros/">👉 Play Football Bros Unblocked 👈</a>
 
 ![Football-Bros](https://github.com/Football-Bros-Online/.github/blob/main/Football%20Bros_1.png)
 
